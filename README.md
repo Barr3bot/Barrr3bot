@@ -1,6 +1,6 @@
 https://duckduckgo.com/
 
-https://fmhy.net/
+https://ani.pm/
 
 https://www.crazygames.com/
 
