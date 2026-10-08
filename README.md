@@ -21,3 +21,7 @@ https://sites.google.com/view/classroom6x/?pli=1&authuser=0
 https://ubghyper.github.io/
 
 https://cdn.youtubeunblocked.live/
+
+https://atsu.moe/
+
+https://mangadot.net/
