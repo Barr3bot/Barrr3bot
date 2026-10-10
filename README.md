@@ -25,3 +25,5 @@ https://cdn.youtubeunblocked.live/
 https://atsu.moe/
 
 https://mangadot.net/
+
+https://axeium-study-ixl.b-cdn.net/
