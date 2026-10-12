@@ -26,4 +26,4 @@ https://atsu.moe/
 
 https://mangadot.net/
 
-https://academy-zone.b-cdn.net/windows.html/
+https://academy-zone.b-cdn.net
