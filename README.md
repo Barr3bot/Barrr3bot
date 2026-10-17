@@ -26,4 +26,4 @@ https://atsu.moe/
 
 https://mangadot.net/
 
-https://academy-zone.b-cdn.net
+https://s3.amazonaws.com/opiumbest/study
