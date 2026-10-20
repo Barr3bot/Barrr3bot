@@ -22,9 +22,7 @@ https://ubghyper.github.io/
 
 https://cdn.youtubeunblocked.live/
 
-https://atsu.moe/
-
-https://mangadot.net/
+https://kagane.si/
 
 https://s3.amazonaws.com/opiumbest/study
 
