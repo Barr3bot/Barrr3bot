@@ -1,5 +1,7 @@
 https://duckduckgo.com/
 
+https://truffled.lol/
+
 https://ani.pm/
 
 https://www.crazygames.com/
