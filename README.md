@@ -28,7 +28,7 @@ https://kagane.si/
 
 [https://s3.amazonaws.com/opiumbest/study](https://s3.amazonaws.com/opiumbest/study)
 
-https://petezahgames.com/?utm_source=ubghub.org&utm_medium=referral&utm_campaign=ubghub.org
+http://vxukxnfbnr.indiaguru.com/
 
 https://app.zoom.us/wc
 
