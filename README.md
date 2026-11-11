@@ -28,7 +28,7 @@ https://kagane.si/
 
 [https://s3.amazonaws.com/opiumbest/study](https://s3.amazonaws.com/opiumbest/study)
 
-http://vxukxnfbnr.indiaguru.com/
+https://izomdtzdwb.alalalal.com/
 
 https://app.zoom.us/wc
 
