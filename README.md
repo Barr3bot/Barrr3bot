@@ -24,7 +24,7 @@ https://ubghyper.github.io/
 
 https://poki.com/en/g/soccer-skills-world-cup
 
-https://kagane.si/
+[https://kagane.si/](https://mangadot.net/)
 
 [https://s3.amazonaws.com/opiumbest/study](https://s3.amazonaws.com/opiumbest/study)
 
